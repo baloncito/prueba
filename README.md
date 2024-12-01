@@ -1,2 +1,2 @@
 esto es una prueba 
-![image](https://github.com/user-attachments/assets/69b07234-6f57-4fd2-bf85-bde06341a92c)
+![image](https://github.com/user-attachments/assets/73b5f295-ee99-4096-a667-cd49a5303769)
